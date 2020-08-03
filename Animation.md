@@ -8,7 +8,7 @@
 
    **注意：不要催番！**
 
-2. [LoliHouse](https://loilhouse.cafe)
+2. [LoliHouse](https://lolihouse.cafe)
 
    著名 WEBRip 制作组，更新速度快但画质就没BDRip那么好了。
 
